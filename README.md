@@ -1,2 +1,3 @@
 # 3DSthemes
-my #3DS themes :3c
+My 3DS themes! You can install them using the QR codes below!
+
